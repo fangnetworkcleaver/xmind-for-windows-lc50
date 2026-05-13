@@ -1,4 +1,4 @@
-# 
+# Enhance XMind for Windows with rare XMind for Windows Integration | themes + notes-integration, the #1 integration. Includes themes and notes-integration for a smoother and more
 
 
 
